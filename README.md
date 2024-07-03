@@ -1,2 +1,2 @@
 # aman952036
-"><svg+onload=alert&amp;#x45"1
+"><img+onload=alert&amp;#x45"1
